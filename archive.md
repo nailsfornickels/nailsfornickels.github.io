@@ -54,6 +54,7 @@ permalink: /archive/
 - [Tuxedos](/tutorial-tuxedos/)
 - [Under Color](/tutorial-under-color/)
 - [Velvet](/tutorial-velvet-nails/)
+- [Water Marble](/tutorial-water-marble-nails/)
 - [Watermelons](/tutorial-watermelons/)
 - [White Roses](/tutorial-white-roses/)
 
