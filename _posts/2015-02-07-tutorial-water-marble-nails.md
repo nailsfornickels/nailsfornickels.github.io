@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Tutorial - Water Marble Nails
-date: 2015-02-09
+date: 2015-02-07
 permalink: /tutorial-water-marble-nails/
 ---
 
