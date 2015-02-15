@@ -13,11 +13,11 @@ So I meant to get this post up before Valentine’s Day, but I kept getting side
 
 ![](/images/Nails This Week/Valentines 2015 Ombre & Hearts/FullSizeRender-2.jpg)
 
-If you don’t know how to, check out my tutorial [here](http://nailsfornickels.com/tutorial-ombre-fall-colors/) to see how to do ombre nails. It’s super easy and it’s my favorite type of nail art to do :)
+If you don’t know how to, check out my tutorial [here](/tutorial-ombre-fall-colors/) to see how to do ombre nails. It’s super easy and it’s my favorite type of nail art to do :)
 
 ![](/images/Nails This Week/Valentines 2015 Ombre & Hearts/FullSizeRender-3.jpg)
 
-And to learn how to do the hearts, check out my Valentine’s Day nails from last year [here](http://nailsfornickels.com/tutorial-valentines-day-hearts-french-tips/).
+And to learn how to do the hearts, check out my Valentine’s Day nails from last year [here](/tutorial-valentines-day-hearts-french-tips/).
 
 ![](/images/Nails This Week/Valentines 2015 Ombre & Hearts/FullSizeRender-4.jpg)
 
