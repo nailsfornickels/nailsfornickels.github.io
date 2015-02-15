@@ -133,6 +133,7 @@ permalink: /archive/
 
 - [Cherry Red with Black Pearls](/nails-this-week-cherry-red-with-black-pearls/)
 - [French Tips with Hearts](/tutorial-valentines-day-hearts-french-tips/)
+- [Ombre & Hearts](/nails-this-week-valentines-day-2015-ombre-hearts/)
 - [Valentine’s Fingers & Toes](/bonus-post-valentines-day-fingers-toes/)
 
 *St. Patrick’s Day*
