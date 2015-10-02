@@ -2,7 +2,7 @@
 layout: post
 title: Halloween Month 2015 - Halloween Glam
 date: 2015-10-01
-permalink: /halloween-month-2015-halloween-glam/
+permalink: /nails-this-week-halloween-month-2015-halloween-glam/
 ---
 I'M BACK BABY!  
 
