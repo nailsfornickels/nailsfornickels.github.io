@@ -156,6 +156,7 @@ permalink: /archive/
 - [Halloween Month 2014: Fuzzy Spiders](/halloween-month-2014-tutorial-fuzzy-spiders/)
 - [Halloween Month 2014: Skull & Bones](/halloween-month-2014-tutorial-skull-bones/)
 - [Halloween Month 2014: Spooky Trees](/halloween-month-2014-spooky-trees/)
+- [Halloween Month 2015: Halloween Glam](/nails-this-week-halloween-month-2015-halloween-glam/)
 
 *Christmas*
 

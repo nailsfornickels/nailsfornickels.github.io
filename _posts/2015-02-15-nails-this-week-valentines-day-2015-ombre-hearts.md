@@ -26,6 +26,7 @@ Have a great week, my lovelies! I’ll see you next time <3
 ![](/images/Nails This Week/Valentines 2015 Ombre & Hearts/FullSizeRender.jpg)
 
 Nail Polishes Used:
--Sinful Colors Professional in “Pink Forever” (#313)
--Sinful Colors Professional in “Ruby Ruby” (#369)
--Nicole by O.P.I. in “Yoga-Then-Yogurt” (#NI 447)
+
+- Sinful Colors Professional in “Pink Forever” (#313)
+- Sinful Colors Professional in “Ruby Ruby” (#369)
+- Nicole by O.P.I. in “Yoga-Then-Yogurt” (#NI 447)
