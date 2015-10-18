@@ -17,6 +17,7 @@ permalink: /archive/
 - [Christmas Trees](/christmas-month-2013-christmas-trees/)
 - [Colorful Disco](/tutorial-colorful-disco/)
 - [Cupcakes](/tutorial-cupcakes/)
+- [Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)
 - [Daisies](/tutorial-daisies/)
 - [Donuts & Chocolate Sprinkles](/tutorial-donuts-chocolate-sprinkles/)
 - [Feather](/tutorial-feather-nails/)
@@ -157,6 +158,7 @@ permalink: /archive/
 - [Halloween Month 2014: Skull & Bones](/halloween-month-2014-tutorial-skull-bones/)
 - [Halloween Month 2014: Spooky Trees](/halloween-month-2014-spooky-trees/)
 - [Halloween Month 2015: Halloween Glam](/nails-this-week-halloween-month-2015-halloween-glam/)
+- [Halloween Month 2015: Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)
 
 *Christmas*
 
