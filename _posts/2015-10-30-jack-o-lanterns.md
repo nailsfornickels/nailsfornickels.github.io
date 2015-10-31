@@ -23,7 +23,7 @@ Step 1: Supplies! For these nails you will need:
 
 Clean, buff, and polish your nails in the style you prefer, then paint on your clear base coat.
 
-![](/images/Tutorials/Jack O Lanterns/step_1.jpg)
+![](/images/Tutorials/Jack O Lanterns/step_1.JPG)
 
 Step 2: Orange it! Take your orange polish and paint on 2-3 coats to get a nice solid base color.
 
@@ -49,17 +49,17 @@ Step 6: Finish it! Wait until the black has dried and seal your manicure with th
 
 I hope everyone's been having an awesome Halloween so far! I'm off to go get some bubble tea and dinner and then it's an evening of relaxing for me, hubby, and puppy.
 
-![](/images/Tutorials/Jack O Lanterns/final_1.jpg)
+![](/images/Tutorials/Jack O Lanterns/final_1.JPG)
 
-![](/images/Tutorials/Jack O Lanterns/final_2.jpg)
+![](/images/Tutorials/Jack O Lanterns/final_2.JPG)
 
 Like I said at the beginning of the month, it's great to be back :) I don't know what designs I have coming up, but I know we're going to have a blast doing them ;)
 
-![](/images/Tutorials/Jack O Lanterns/final_3.jpg)
+![](/images/Tutorials/Jack O Lanterns/final_3.JPG)
 
 Have a spooky and awesome Halloween, my lovelies! I'll see you next time <3
 
-![](/images/Tutorials/Jack O Lanterns/final_4.jpg)
+![](/images/Tutorials/Jack O Lanterns/final_4.JPG)
 
 Nail Polish Used:
 
