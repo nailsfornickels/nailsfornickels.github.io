@@ -29,6 +29,7 @@ permalink: /archive/
 - [Glitter Nails](/tutorial-glitter-nails/)
 - [Glitter Tips](/tutorial-glitter-tips/)
 - [Grapes](/tutorial-grapes/)
+- [Jack O' Lanterns](/halloween-month-2015-tutorial-jack-o-lanterns)
 - [Kiwi Slices](/tutorial-kiwi-slices/)
 - [Lace Tips](/tutorial-lace-tips/)
 - [Ladybugs](/tutorial-ladybug/)
@@ -159,6 +160,7 @@ permalink: /archive/
 - [Halloween Month 2014: Spooky Trees](/halloween-month-2014-spooky-trees/)
 - [Halloween Month 2015: Halloween Glam](/nails-this-week-halloween-month-2015-halloween-glam/)
 - [Halloween Month 2015: Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)
+- [Halloween Month 2015: Jack O' Lanterns](/halloween-month-2015-tutorial-jack-o-lanterns)
 
 *Christmas*
 

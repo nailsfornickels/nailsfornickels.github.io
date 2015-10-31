@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Halloween Month 2015 - Tutorial - Jack O' Lanterns
-date: 2015-10-30
+date: 2015-10-31
 permalink: /halloween-month-2015-tutorial-jack-o-lanterns/
 ---
 
