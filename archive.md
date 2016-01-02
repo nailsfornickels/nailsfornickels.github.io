@@ -90,6 +90,7 @@ permalink: /archive/
 - [Lilac & Jewels](/nails-this-week-lilac-jewels/)
 - [Lilac & White Dots](/nails-this-week-lilac-white-dots/)
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
+- [Pantone Colors of the Year 2016 Glitz](/nails-this-week-pantone-colors-of-the-year-2016-glitz/)
 - [Pink Velvet](/nails-this-week-pink-velvet/)
 - [Pink & Lime French Tips](/nails-this-week-pink-lime-french-tips/)
 - [Pink & Purple Ombre](/nails-this-week-pink-purple-ombre/)
@@ -127,9 +128,10 @@ permalink: /archive/
 
 **Holiday-Themed:**
 
-*New Year’s Eve*
+*New Year’s Eve / New Year's*
 
 - [Black & Gold](/tutorial-new-years-eve-black-gold/)
+- [Pantone Colors of the Year 2016 Glitz](/nails-this-week-pantone-colors-of-the-year-2016-glitz/)
 
 *Valentine’s Day*
 
