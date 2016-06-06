@@ -18,7 +18,4 @@ links:
     url:          /nails-this-week-mint-black-polka-dots/
 highlighter:      rouge
 permalink:        pretty
-markdown:         redcarpet
-redcarpet:
-  extensions:
-    - smart
+markdown:         kramdown
