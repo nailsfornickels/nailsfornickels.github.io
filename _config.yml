@@ -16,7 +16,7 @@ links:
     external:     true
   - name:         Latest Post
     url:          /nails-this-week-mint-black-polka-dots/
-highlighter:      pygments
+highlighter:      rouge
 permalink:        pretty
 markdown:         redcarpet
 redcarpet:
