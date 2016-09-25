@@ -64,6 +64,7 @@ permalink: /archive/
 **Nails This Week:** *(No instructions, just photos of nail art to get you inspired ;) )*
 
 - [Alternating Red & White Tips](/nails-this-week-red-and-white-tips/)
+- [Autumn Elegance](/nails-this-week-autumn-elegance/)
 - [Beaded French Tips](/nails-this-week-beaded-french-tips/)
 - [Black Flower Accent](/nails-this-week-black-flower-accent/)
 - [Black Tips & Blue Bows](/nails-this-week-black-tips-blue-bows/)
