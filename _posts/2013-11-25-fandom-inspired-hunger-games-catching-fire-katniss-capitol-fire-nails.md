@@ -15,7 +15,7 @@ Clearly I had to paint my nails to celebrate the occasion, right? But what type 
 
 And then it hit me: Katniss’ fire nails!
 
-![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 4.jpg)
+![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 4.JPG)
 
 For those of you who haven’t read the series or need a quick refresher – In the first book (“The Hunger Games”), when Katniss is reaped for the Games, she is taken to the Capitol to be prettied and fattened up before being sent to a televised fight to the death. The man in charge of her “look” for the Capitol, Cinna, decides that he wants to go with a fire motif for her costumes. It’s a very small detail, but in the book Suzanne Collins (the author of the series) mentions that the Capitol designers paint her nails with tiny flames, getting the fire look down to every last detail.
 
