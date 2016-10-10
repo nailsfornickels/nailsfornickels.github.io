@@ -11,19 +11,19 @@ And speaking of the end of summer (boo, I know, but I am SO excited for fall hah
 
 **Hannah’s Chevron Manicure**
 
-![](/images/What You've Been Up To/What You've Been Up To 1/photo 2.jpg)
+![](/images/What You've Been Up To/What You've Been Up To 1/photo 2.JPG)
 
 The first photo in today’s post is from the lovely Hannah, who is sporting some rockin’ peach, salmon, and sky blue Chevron nails with a sky blue nail thumb. And she has a matching Chevron phone case to boot! So freakin’ cute! To find out how to do your own Chevron nails, check out my tutorial here.
 
 **Hannah’s Strawberry Manicure**
 
-![](/images/What You've Been Up To/What You've Been Up To 1/photo 3.jpg)
+![](/images/What You've Been Up To/What You've Been Up To 1/photo 3.JPG)
 
 Today’s second photo also comes from the lovely Hannah, who ruled the summer with some gorgeous sky blue nails with strawberry accents. I love the combo, girl! To do your own strawberry nails at home, click here.
 
 **Hope’s Splatter Pedicure**
 
-![](/images/What You've Been Up To/What You've Been Up To 1/photo 1.jpg)
+![](/images/What You've Been Up To/What You've Been Up To 1/photo 1.JPG)
 
 And finally, rounding out this week’s post is the fabulous Hope and her too-cool-for-school splatter pedicure! She took my Dexter fandom nails and made them her own, painting her toes with a light blue polish and pink splatters. They look awesome! For instructions on doing your own splatter nails, check out my Fandom Inspired: “Dexter” Blood Spatter tutorial here.
 

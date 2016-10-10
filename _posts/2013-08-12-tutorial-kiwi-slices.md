@@ -21,49 +21,49 @@ Step 1: Supplies! For this manicure, you will need:
 - Hole reinforcement stickers
 - A piece of paper/plastic to drip polish on
 
-![](/images/Tutorials/Kiwi Slices/photo 2-1.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 2-1.JPG)
 
 Step 2: Prep it! Clean, buff, and shape your nails in the style you prefer, then paint on the clear base coat.
 
-![](/images/Tutorials/Kiwi Slices/photo 1.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 1.JPG)
 
 Step 3: Paint it! Paint your entire nail with 2-3 coats of the green polish (enough to get a good base color).
 
-![](/images/Tutorials/Kiwi Slices/photo 2.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 2.JPG)
 
 Then WAIT until the green polish is completely dry before moving on to step 4. :)
 
 Step 4: Stick it! Take one of the hole reinforcement stickers and place it on your nail so that there is an uncovered sliver at the tip of your nail and the center hole of the sticker is at the center of your nail.
 
-![](/images/Tutorials/Kiwi Slices/photo 3.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 3.JPG)
 
 (Side note: Depending on how large your nails are, you may get a brown ring around the entire “slice” instead of just the tip. Either way looks fine. When I did this manicure I got a ring on my thumbs and just the sliver on the rest of my fingers.)
 
 Step 5: Paint it! Grab your tan/brown polish and your white polish. Paint the outer edge(s) of the sticker brown, and paint the inner circle white.
 
-![](/images/Tutorials/Kiwi Slices/img_1473.jpg)
+![](/images/Tutorials/Kiwi Slices/img_1473.JPG)
 
-![](/images/Tutorials/Kiwi Slices/photo 5.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 5.JPG)
 
 Remove the sticker.
 
-![](/images/Tutorials/Kiwi Slices/photo 1-1.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 1-1.JPG)
 
 Step 6: Seed it! Now drip some of the black polish onto your piece of paper/plastic, take out your toothpick, and paint small black “seeds” around the center white circle.
 
-![](/images/Tutorials/Kiwi Slices/photo 3-1.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 3-1.JPG)
 
 Step 7: Finish it! Seal your manicure with the clear top coat, clean up the edges, and you’re done.
 
-![](/images/Tutorials/Kiwi Slices/photo 3-2.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 3-2.JPG)
 
 To see what other fruit-themed nails I’ve done, check out my “Strawberries” tutorial [here](http://nailsfornickels.com/tutorial-strawberries/).
 
-![](/images/Tutorials/Kiwi Slices/photo 2-2.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 2-2.JPG)
 
 Have a wonderful week, lovely readers! See you next time <3
 
-![](/images/Tutorials/Kiwi Slices/photo 1-2.jpg)
+![](/images/Tutorials/Kiwi Slices/photo 1-2.JPG)
 
 **Nail polishes used:**
 

@@ -11,7 +11,7 @@ I’ve been really excited about to share this one with you all, so without any 
 
 The style I did for this nail was inspired by the gold colored Daleks in the rebooted series.
 
-![](/images/Fandom Inspired/Doctor Who Daleks/Daleks.JPG)
+![](/images/Fandom Inspired/Doctor Who Daleks/Daleks.jpg)
 
 But you can do your Daleks in any color you choose. I just thought the gold ones were the most easily recognized. :) Now on to the tutorial!
 

@@ -11,7 +11,7 @@ So this week I have a super fun tutorial that was inspired by what is, in my opi
 
 This manicure was inspired by the outfit of one of the camp trainers, Agent Milla Vodello.
 
-![](/images/Fandom Inspired/Milla Vodello Mod/milla vodello.JPG)
+![](/images/Fandom Inspired/Milla Vodello Mod/milla vodello.jpg)
 
 Her design is very clearly mod and disco inspired, and when I was looking at her dress I knew I had to come up with a manicure for it. :) I hope you enjoy this tutorial!
 

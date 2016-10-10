@@ -9,7 +9,7 @@ Hello my lovelies! Oh what a BEAUTIFUL morning we have here, it definitely feels
 
 This week I kept things a bit simple after the fandom tutorials I threw your way: just some black polish with gold sparkly tips and full gold polish on the ring fingers.
 
-![](/images/Nails This Week/Black with Gold Sparkles/black with gold sparkles 1.JPG)
+![](/images/Nails This Week/Black with Gold Sparkles/black with gold sparkles 1.jpg)
 
 I love the look of this one! I really like the combination of black and gold; it’s very elegant and I think it’s PERFECT for a date/party night. ;)
 
