@@ -28,6 +28,7 @@ permalink: /archive/
 - [Gingerbread Men](/christmas-month-2013-gingerbread-men/)
 - [Glitter Nails](/tutorial-glitter-nails/)
 - [Glitter Tips](/tutorial-glitter-tips/)
+- [Glowing Skulls](/halloween-month-2016-tutorial-glowing-skulls/)
 - [Grapes](/tutorial-grapes/)
 - [Jack O' Lanterns](/halloween-month-2015-tutorial-jack-o-lanterns)
 - [Kiwi Slices](/tutorial-kiwi-slices/)
@@ -164,6 +165,7 @@ permalink: /archive/
 - [Halloween Month 2015: Halloween Glam](/nails-this-week-halloween-month-2015-halloween-glam/)
 - [Halloween Month 2015: Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)
 - [Halloween Month 2015: Jack O' Lanterns](/halloween-month-2015-tutorial-jack-o-lanterns)
+- [Halloween Month 2016: Glowing Skulls](/halloween-month-2016-tutorial-glowing-skulls/)
 
 *Christmas*
 
