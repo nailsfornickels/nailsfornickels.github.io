@@ -11,7 +11,7 @@ My weekend has been pretty nice so far – I’ve been doing the job hunt this w
 
 **Tutorial: Donuts & Chocolate Sprinkles**
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 5.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 5.JPG)
 
 Step 1: Supplies! For this manicure, you will need:
 
@@ -19,17 +19,17 @@ Step 1: Supplies! For this manicure, you will need:
 – Nail polish in pink, brown, lavender, and tan/gold
 - Dotting tools with a couple of different sizes (large for the donuts, small for the sprinkles)
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 4.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 4.JPG)
 
 Step 2: Prep it & paint it! I unfortunately forgot to take pictures at the beginning, but this is the easy part. Clean, shape, and buff your nails in the style you prefer, then paint on the clear base coat. Once that’s dried, paint on 2-3 coats of your pink polish to get a nice solid base color.
 
 Step 3: Do(nu)t it! Now take your tan/gold polish and paint a variety of large circles on your nails. I did one full one on each nail, as well as two partial circles by the edges.
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 1.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 1.JPG)
 
 Step 4: Icing! Can’t have donuts without icing, now can we? Take your lilac and brown nail polishes and, using your dotting tool, paint smaller circles within your large tan/gold “donuts”.
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 2.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 2.JPG)
 
 (This would be a cool place to stop for some funky mod nails, huh? ;) )
 
@@ -37,15 +37,15 @@ Step 5: Hole it! (That felt weird to type… Lol) Finally, take your pink polish
 
 But donuts aren’t enough, wouldn’t you agree? I think we need some sprinkles to tie everything together! Take the smallest dotting tool you have, dip it in your brown polish, and make tiny lines all over your nails to create a backdrop of chocolate sprinkles!
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 3.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 3.JPG)
 
 Step 6: Finish it! Finally, clean up the edges, seal your manicure with a top coat, and voila! A tasty pastry manicure to lighten up your hands!
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 1-1.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 1-1.JPG)
 
 I actually just bought some donuts last night, rather fitting for this post don’t you think? Oh Krispy Kreme, you are so tasty and will so be the death of me *laughs*
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 2-1.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 2-1.JPG)
 
 So what’s going on with you all this week? Any fun plans? On my end it’s continued job hunting and… oh how could I forget this:
 
@@ -53,7 +53,7 @@ GAME OF THRONES FINALE TONIGHT!!
 
 I know, I’m awful and didn’t do a Fandom Inspired post for GoT tonight :P But oh gosh I’m pumped! And also sad, because now we all have to wait about a year for the next season :( But Teen Wolf starts up again next week so that’s exciting ;)
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 3-1.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 3-1.JPG)
 
 So other than my obsession with TV shows, that’s about all I have today. But I hope you all have a wonderful week and that you enjoyed today’s tutorial!
 
@@ -61,7 +61,7 @@ Are there any types of nail art / manicures you’d like to see me do? If so, le
 
 Have a great week, my lovelies! I’ll see you next time <3
 
-![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 4-1.jpg)
+![](/images/Tutorials/Donuts & Chocolate Sprinkles/photo 4-1.JPG)
 
 **Nail Polishes Used:**
 

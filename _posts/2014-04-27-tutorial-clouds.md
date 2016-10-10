@@ -11,7 +11,7 @@ Let’s get in the springtime mood today!
 
 **Tutorial: Clouds**
 
-![](/images/Tutorials/Clouds/2-1.jpg)
+![](/images/Tutorials/Clouds/2-1.JPG)
 
 Step 1: Supplies
 
@@ -23,37 +23,37 @@ For this manicure, you will need:
 - Dotting tool
 - Something to drip paint on (a piece of paper/plastic)
 
-![](/images/Tutorials/Clouds/photo 2.jpg)
+![](/images/Tutorials/Clouds/photo 2.JPG)
 
 Step 2: Paint it!
 
 After shaping your nails and painting on the base coat, paint your nails with the sky blue polish.
 
-![](/images/Tutorials/Clouds/photo 1.jpg)
+![](/images/Tutorials/Clouds/photo 1.JPG)
 
 Step 3: Dot it! Get your white polish ready by dripping some of it onto the piece of paper/plastic.
 
-![](/images/Tutorials/Clouds/photo 3.jpg)
+![](/images/Tutorials/Clouds/photo 3.JPG)
 
 Dot three dots of white polish next to each other to create the “clouds” look.
 
-![](/images/Tutorials/Clouds/photo 4.jpg)
+![](/images/Tutorials/Clouds/photo 4.JPG)
 
 Step 4: Finish it! Seal the manicure with a top coat, clean up the edges and voila! A fun spring/summertime manicure!
 
-![](/images/Tutorials/Clouds/2-3.jpg)
+![](/images/Tutorials/Clouds/2-3.JPG)
 
 Quick and simple today, and once again I’m sorry for the late post!
 
-![](/images/Tutorials/Clouds/2-2.jpg)
+![](/images/Tutorials/Clouds/2-2.JPG)
 
 I hope you enjoy today’s manicure, my sweets!
 
-![](/images/Tutorials/Clouds/2-4.jpg)
+![](/images/Tutorials/Clouds/2-4.JPG)
 
 Happy Sunday, my lovelies, and have a great week! I’ll see you next time <3
 
-![](/images/Tutorials/Clouds/2-1.jpg)
+![](/images/Tutorials/Clouds/2-1.JPG)
 
 **Nail Polishes Used:**
 

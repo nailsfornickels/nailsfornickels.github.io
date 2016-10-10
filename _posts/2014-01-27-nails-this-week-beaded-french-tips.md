@@ -11,17 +11,17 @@ My weekend consisted of nothing but moving – a 27 hour drive from Denver to Sa
 
 **Nails This Week: Beaded French Tips**
 
-![](/images/Nails This Week/Beaded French Tips/photo 3-2.jpg)
+![](/images/Nails This Week/Beaded French Tips/photo 3-2.JPG)
 
 (Side note: I apologize for the air bubbles – I was in a rush when I did them and didn’t have time to redo :( )
 
 Doing your nails like this is extremely easy! Just make a french tip in the color and style you prefer (for a straight tip, I recommend the rubber band method, and for the curved tip I like to use hole reinforcement stickers) and then line the edge with decorative jewels / pearls / studs of your choice.
 
-![](/images/Nails This Week/Beaded French Tips/photo 4-2.jpg)
+![](/images/Nails This Week/Beaded French Tips/photo 4-2.JPG)
 
 Well I have to get back to unpacking and organizing – but I’m hopeful today’s the last day of that. ;)
 
-![](/images/Nails This Week/Beaded French Tips/photo 5-1.jpg)
+![](/images/Nails This Week/Beaded French Tips/photo 5-1.JPG)
 
 Have a wonderful week, my lovelies! I’ll see you next time. <3
 

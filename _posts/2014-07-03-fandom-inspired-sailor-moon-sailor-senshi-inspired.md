@@ -15,43 +15,43 @@ Plus this will be my first time in L.A., I’m excited! We’re going to try to 
 
 So anyway, onto this week’s nails:
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/sailor moon crystal.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/sailor moon crystal.JPG)
 
 SAILOR MOON CRYSTAL PREMIERS THIS SATURDAY!!!!! *shrieks* I am so so SO excited! Like most people around my age, Sailor Moon was my first introduction to anime and it holds a very special place in my heart. (P.S. the cast is going to be at AX and they’re going to be doing a screening, eeeeee! *squeals*) So OBVIOUSLY I had to do something Sailor Moon-themed this week!
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 4-1.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 4-1.JPG)
 
 But what to do? Doing mini portraits of each of the Scouts? That’s beyond my abilities *laughs* Color coding? Meh, that’s a little boring. And then it hit me: The Senshi astrological symbols!
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 1-2.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 1-2.JPG)
 
 For each of my nails, I did two things: First, I painted the nail with the main color (i.e. skirt and collar) of the uniform. Then I placed a small curve of faux crystals (for Sailor Moon Crystal, get it?? Lol) at the nail base in the color of the scout’s secondary color (i.e. their ribbon/bow color). Finally, I used gold polish to paint the symbols of each of the girls: Crescent moons on my thumbs for Serena, and the astrological symbols on each of my other fingers for the other eight scouts. (I forgot to make a Chibi-Usagi specific one, but since she’s the next Moon Princess I figured two moons is close enough ;) )
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 3-1.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 3-1.JPG)
 
 Out of curiosity, who is your favorite Sailor Scout? Mine is Jupiter!! Kino Makoto is my girl, no question <3 But I love all of the senshi so much! Pluto / Setsuna is my second favorite :)
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 4.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 4.JPG)
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 5.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 5.JPG)
 
 So as I’ve said, I’m gonna be at Anime Expo this weekend! If you happen to see me wandering around, please come say hi! I’m planning to wear this shirt and either shorts or capris:
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/Jupiter Shirt.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/Jupiter Shirt.JPG)
 
 Obviously I won’t be there today, but I’ll be at AX tomorrow afternoon and throughout the day Saturday and Sunday :)
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 2-2.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 2-2.JPG)
 
 Alright my lovelies, I’ve got finish cleaning up my apartment and packing, but you all have an AWESOME weekend! And to my American readers: Happy Fourth of July! Have a great time with the festivities and be safe if you’re partying ;)
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 3-2.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/photo 3-2.JPG)
 
 Have a great weekend, my wonderful readers! I’ll see you next time <3
 
 ![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/Screen Shot 2014-07-03.png)
 
-![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/IMG_2899.jpg)
+![](/images/Fandom Inspired/Sailor Moon Crystal Astrological Symbols/IMG_2899.JPG)
 
 Moon Prism Power, Makeup!
 

@@ -9,25 +9,25 @@ Happy Sunday, my lovelies! And a very happy Easter to you as well! Whether you c
 
 This past week was pretty exciting – I’ve been approved to move on to the next phase at my hacker school! I’m not going to lie though, I’m pretty nervous – I hear that this second phase is the hardest. I’m sure I’ll have my work cut out for me, but I’ll just have to power through and kick some programming butt!
 
-![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 1.jpg)
+![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 1.JPG)
 
 This week’s manicure is the DEFINITION of simple and cute. I just did each of my nails in a different pastel color, and then layered over them with white polka dots.
 
-![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 3.jpg)
+![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 3.JPG)
 
 For dots this size, you have three options: you can simply use the built-in bottle brush (like I did for this manicure today), you can use dotting tools (which you can purchase online or in nail art supply shops), or you can make your own at home (which I demonstrated in this tutorial here).
 
-![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 5.jpg)
+![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 5.JPG)
 
 I love the look of rainbow manicures, and this manicure is no exception! I thought white polka dots over pastel shades makes for a perfect Easter Sunday manicure, and I hope that you agree. :)
 
-![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 4.jpg)
+![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 4.JPG)
 
 That’s about all I have for you today, my lovelies! I hope you have a wonderful Easter Sunday, and that this upcoming week is amazing. :)
 
 Happy Easter, my lovelies! I’ll see you next time <3
 
-![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 2.jpg)
+![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 2.JPG)
 
 **Nail Polishes Used:**
 

@@ -15,11 +15,11 @@ Now it’s been a little while since I’ve had a full-fledged tutorial for you 
 
 **Sushi Nails**
 
-![](/images/Tutorials/Sushi Nails/photo 1-4.jpg)
+![](/images/Tutorials/Sushi Nails/photo 1-4.JPG)
 
 Step 1: Supplies! Okay, so there are a LOT of colors required for this manicure, but fortunately it’s all pretty easy! Just a bit time-consuming. ;)
 
-![](/images/Tutorials/Sushi Nails/photo 1-3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 1-3.JPG)
 
 For this manicure you will need:
 -A small paint/makeup brush
@@ -31,7 +31,7 @@ For this manicure you will need:
 
 Step 2: Prep it! Clean, buff, and shape your nails in the style you prefer, then paint them with the clear base coat.
 
-![](/images/Tutorials/Sushi Nails/photo 1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 1.JPG)
 
 And now I’m going to take you through each nail style, step-by-step, and then you can decide how you want to do your sushi manicure!
 
@@ -39,61 +39,61 @@ And now I’m going to take you through each nail style, step-by-step, and then 
 
 Step 1: Paint it! Paint your whole nail with the white polish.
 
-![](/images/Tutorials/Sushi Nails/photo 3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3.JPG)
 
 Step 2: Paint it (again)! Paint one half of your tuna nail with a deep red polish. Try to paint it in a slight curve, to emulate a piece of fish draped across a bed of rice.
 
-![](/images/Tutorials/Sushi Nails/photo 4.jpg)
+![](/images/Tutorials/Sushi Nails/photo 4.JPG)
 
 Step 3: Stripe it! Finally, paint a thick stripe of black across the middle of the nail. This is the piece of seaweed that holds the sushi together!
 
-![](/images/Tutorials/Sushi Nails/photo 2-2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 2-2.JPG)
 
 **Part 2: Salmon Nigiri**
 
 Step 1: Paint it! Same as the tuna, paint the entire nail white.
 
-![](/images/Tutorials/Sushi Nails/photo 3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3.JPG)
 
 Step 2: Paint half of the nail orange, again trying to curve the color.
 
-![](/images/Tutorials/Sushi Nails/photo 5.jpg)
+![](/images/Tutorials/Sushi Nails/photo 5.JPG)
 
 Step 3: Line it! Now we’re going to make the lines of fat in slices of salmon. Take your paint/makeup brush, dip it in your white polish, and paint thin white lines through the orange half of your nail.
 
-![](/images/Tutorials/Sushi Nails/photo 1-1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 1-1.JPG)
 
 **Part 3: Octopus Nigiri Wrapped with Seaweed**
 
 Step 1: Paint it! Same as the other two, start by painting your entire nail white.
 
-![](/images/Tutorials/Sushi Nails/photo 3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3.JPG)
 
 Step 2: Paint it (again)! And, same as the other two, paint half of your nail with the second color. This time I used a deep maroon/plum.
 
-![](/images/Tutorials/Sushi Nails/photo 2-1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 2-1.JPG)
 
 Step 3: Dot it! To make the suction cups of the octopus, use a large dotting tool and place dots of a lighter pink/purple onto the color portion of the nail.
 
-![](/images/Tutorials/Sushi Nails/photo 3-1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3-1.JPG)
 
 Step 4: Stripe it! And finally, just like the tuna nail, paint a thick black stripe across the center of the nail to act as the seaweed strip.
 
-![](/images/Tutorials/Sushi Nails/photo 4-1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 4-1.JPG)
 
 **Part 4: Rainbow Roll Side View**
 
 Step 1: Paint it! Just like all the others, start with a white base for your nail.
 
-![](/images/Tutorials/Sushi Nails/photo 3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3.JPG)
 
 Step 2: Paint the diagonal half of the nail with a pale pink polish (to symbolize a light fish, like white tuna or albacore).
 
-![](/images/Tutorials/Sushi Nails/photo 5-1.jpg)
+![](/images/Tutorials/Sushi Nails/photo 5-1.JPG)
 
 Step 3: Paint it (again!) Take a light green polish and paint the upper half (at the edge of the nail) of the pink section. This is a slice of avocado that always tops a rainbow roll.
 
-![](/images/Tutorials/Sushi Nails/photo 1-2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 1-2.JPG)
 
 Whoops! I forgot to take a picture of this finished nail! But, as you’ll see in the final picture, you just finish up this nail by placing dots of random colors in the opposite corner of the nail. :)
 
@@ -101,41 +101,41 @@ Whoops! I forgot to take a picture of this finished nail! But, as you’ll see i
 
 Step 1: Paint it! You guessed it, start by painting the nail white!
 
-![](/images/Tutorials/Sushi Nails/photo 3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3.JPG)
 
 Oh gosh, I forgot the intermediate photos for this nail too! But, essentially, you paint a large black dot in the center of the nail. You then paint a slightly smaller white dot in the center of the black dot. Paint small flecks of a light brown polish all over the nail (for sesame seeds!), and then paint small dots of color in the center of the black and white circle.
 
-![](/images/Tutorials/Sushi Nails/photo 4-2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 4-2.JPG)
 
 **Part 6: Multiple Sushi Rolls, Overhead View**
 
 Step 1: Paint it! Finally, this one starts differently! Paint the entire nail black instead of white. ;)
 
-![](/images/Tutorials/Sushi Nails/photo 2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 2.JPG)
 
 Step 2: Dot it! Take your large dotting tool and between 2-3 large white dots across the black surface.
 
-![](/images/Tutorials/Sushi Nails/photo 3-2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3-2.JPG)
 
 Step 6: Color it! Take as many different colors are you like, and place tiny dots of color in a cluster at the center of the white circles.
 
-![](/images/Tutorials/Sushi Nails/photo 5-2.jpg)
+![](/images/Tutorials/Sushi Nails/photo 5-2.JPG)
 
-![](/images/Tutorials/Sushi Nails/photo 2-3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 2-3.JPG)
 
 **Final Step For All:**
 
 Seal your manicure with a clear top coat, and you’re done!
 
-![](/images/Tutorials/Sushi Nails/photo 4-3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 4-3.JPG)
 
 These nails are SO much fun – I can’t tell you how many compliments I got on these. :) Not only does it create a super cute manicure, but since there are so many different types of sushi this theme gives you a multitude of ways to show off your creativity.
 
-![](/images/Tutorials/Sushi Nails/photo 2-4.jpg)
+![](/images/Tutorials/Sushi Nails/photo 2-4.JPG)
 
 Have an amazing week, my wonderful readers! And wish me luck as my husband and I prepare for this next stage in our lives. :)
 
-![](/images/Tutorials/Sushi Nails/photo 3-3.jpg)
+![](/images/Tutorials/Sushi Nails/photo 3-3.JPG)
 
 Happy Monday, my lovelies! I’ll see you next time <3
 
