@@ -17,7 +17,7 @@ So let’s get started with some very awesome
 
 I would like to thank the ever-fabulous Bethany for modeling today’s manicure :)
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1-2.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1-2.JPG)
 
 Step 1: Supplies! For this manicure, you will need:
 
@@ -27,44 +27,44 @@ Step 1: Supplies! For this manicure, you will need:
 - A piece of paper/plastic
 - Hole reinforcement stickers
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2-1.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2-1.JPG)
 
 Step 2: Prep it! Clean, buff and style your nails in the manner you prefer, then paint on the clear base coat.
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1.JPG)
 
 Step 3: Paint it! Take out your red and white polishes. Paint the top half of your nails red, and the bottom half white.
 SIDE NOTE: I am a total moron, and forgot that Pokeballs are half white and half red until I got to the last step. :P So in the pictures the nails are all red, but if you want to save yourself a huge headache from meticulously painting the lower half of the manicure white, make them half red and half white in this step. ;)
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2.JPG)
 
 Step 4: Sticker it! Once your polish is COMPLETELY dried (it’s dry when you can rub your nails against each other without feeling any tack), place hold reinforcement stickers on your nail and paint the inside circle black.
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3.JPG)
 
 Remove the stickers to reveal the black circle.
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 4.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 4.JPG)
 
 Step 5: Line it! Drip some black polish onto your piece of paper/plastic and, using your small paintbrush/toothpick, draw two horizontal lines on either side of the black circles. This is the “seam” in the Pokeballs.
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 5.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 5.JPG)
 
 Step 6: Dot it! Now take out your white polish and, using either the built-in brush or your own dotting tool, paint a white dot inside the center of the black dot.
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1-1.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 1-1.JPG)
 
 Step 7: (REMINDER! The bottom half of your pokeballs should be white!) Seal your manicure with a top coat, clean up the edges, and voila! You now have some fierce Pokeball-themed nails to rock while you’re out collecting badges. ;)
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2-2.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 2-2.JPG)
 
 Because if you’re going to be the very best, it doesn’t hurt to look your very best!
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3-1.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3-1.JPG)
 
 Have a wonderful week, my lovelies! See you next time <3
 
-![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3-2.jpg)
+![](/images/Fandom Inspired/Pokemon Pokeballs/photo 3-2.JPG)
 
 **Nail Polishes Used:**
 

@@ -15,7 +15,7 @@ Wow, that’s a bit of a mouthful huh? ;) But I am so excited for this tutorial 
 
 **“Nightmare Before Christmas” Jack Skellington Nails**
 
-![](/images/Fandom Inspired/Jack Skellington/photo 4-2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 4-2.JPG)
 
 Step 1: Supplies! For this manicure, you will need:
 
@@ -27,51 +27,51 @@ Step 1: Supplies! For this manicure, you will need:
 - White striping tape (or can paint white strips with your thin paintbrush)
 - Cuticle nippers/small manicure scissors to trim the striping tape
 
-![](/images/Fandom Inspired/Jack Skellington/photo 5.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 5.JPG)
 
 Step 2: Prep it! Clean, shape, and buff your nails in the style you prefer, then paint on the clear base coat.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 1.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 1.JPG)
 
 Step 3: Paint it! Paint your nails with the black and white polish. For Jack Skellington heads, paint on the white polish. For the black and white pinstripes, paint on the black polish.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 2.JPG)
 
 Step 4: Pinstripe nails! Take the white striping tape and put three vertical lines on each black nail. Trim the edges with your cuticle nippers/manicure scissors.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 3.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 3.JPG)
 
 Step 5: Jack heads! For the Jack heads, first put the eyes on the nails. You can use a large dotting tool or just drip a circle of the black polish using the bottle brush. Using the toothpick, paint two small dashes under the eyes to create Jack’s nostrils.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 4.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 4.JPG)
 
 Next, drip some black paint onto your piece of paper/plastic.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 1-1.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 1-1.JPG)
 
 Take your small paintbrush and paint a line along the curve of your nail’s edge. Paint this line like you would if you were doing French tips.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 2-1.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 2-1.JPG)
 
 Drip some more black polish onto your paper/plastic if needed and get out your toothpick.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 3-1.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 3-1.JPG)
 
 Paint a series of small vertical dashes across the line of Jack’s “mouth”. These are his “stitches”.
 
-![](/images/Fandom Inspired/Jack Skellington/photo 4-1.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 4-1.JPG)
 
 Step 6: Finish it! Seal your manicure with a top coat, clean up the edges, and voila! A super fabulous Jack Skellington manicure to show off your love of “The Nightmare Before Christmas” and your love of Halloween!
 
-![](/images/Fandom Inspired/Jack Skellington/photo 1-2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 1-2.JPG)
 
-![](/images/Fandom Inspired/Jack Skellington/photo 3-2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 3-2.JPG)
 
 Have a great week, my spooky readers! See you next time <3
 
-![](/images/Fandom Inspired/Jack Skellington/photo 2-2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 2-2.JPG)
 
-![](/images/Fandom Inspired/Jack Skellington/photo 4-2.jpg)
+![](/images/Fandom Inspired/Jack Skellington/photo 4-2.JPG)
 
 **Nail polishes used:**
 

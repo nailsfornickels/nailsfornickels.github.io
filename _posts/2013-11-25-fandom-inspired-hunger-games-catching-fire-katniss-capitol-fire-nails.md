@@ -19,15 +19,15 @@ And then it hit me: Katniss’ fire nails!
 
 For those of you who haven’t read the series or need a quick refresher – In the first book (“The Hunger Games”), when Katniss is reaped for the Games, she is taken to the Capitol to be prettied and fattened up before being sent to a televised fight to the death. The man in charge of her “look” for the Capitol, Cinna, decides that he wants to go with a fire motif for her costumes. It’s a very small detail, but in the book Suzanne Collins (the author of the series) mentions that the Capitol designers paint her nails with tiny flames, getting the fire look down to every last detail.
 
-![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 2.jpg)
+![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 2.JPG)
 
 I was so excited – fire nails for the opening weekend of “Catching Fire”! But how to do it? I decided to combine two things: the colors of fire, and the glitz and glamor of the decadent Capitol. Using my “Tri-Colored Points” method (which you can see [here](http://nailsfornickels.com/tutorial-tri-colored-points/)), I painted the tips of my nails in orange, red, and yellow [the colors of fire]. But before the polish could dry on the yellow points, I sprinkled gold glitter onto the polish to add some sparkle. But that wasn’t enough! So I bought  small adhesive red faux jewels from Michaels and placed them along the line of the golden point. The glitter, jewels, and art deco-ish look of the points represent the overly glamorous and rich look of the Capitol.
 
-![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 1.jpg)
+![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 1.JPG)
 
 I am SO happy with how these nails turned out, and they were such a hit when I was rocking them this last week. ;) I hope you enjoy them too, and I hope that you all have a wonderful week ahead of you this week. I won’t see you again until next week, so for my U.S. readers who celebrate it, have a wonderful Thanksgiving! For everyone else, I’ll see you again next Monday!
 
-![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 3.jpg)
+![](/images/Fandom Inspired/Hunger Games - Catching Fire - Katniss Capitol Fire Nails/photo 3.JPG)
 
 Happy Monday, my lovelies! See you next time. <3
 
