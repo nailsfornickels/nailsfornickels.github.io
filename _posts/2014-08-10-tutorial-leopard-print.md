@@ -15,7 +15,7 @@ How has YOUR week been? I hope that it’s been wonderful! I have a fun and funk
 
 **Tutorial: Leopard Print**
 
-![](/images/Tutorials/Leopard Print/photo 1-1.jpg)
+![](/images/Tutorials/Leopard Print/photo 1-1.JPG)
 
 Step 1: Supplies! For this style, you will need:
 
@@ -24,37 +24,37 @@ Step 1: Supplies! For this style, you will need:
 * A small dotting tool or toothpick
 * A piece of paper/plastic to drip polish on
 
-![](/images/Tutorials/Leopard Print/photo 4.jpg)
+![](/images/Tutorials/Leopard Print/photo 4.JPG)
 
 Step 2: Prep it! Clean, shape, and buff your nails in the style you prefer, then paint on your clear base coat.
 
 Step 3: Base it! Now take the polish you have selected for your base color and paint your entire nail. Use 2-3 coats, or however many it takes to get a nice and solid base color.
 
-![](/images/Tutorials/Leopard Print/photo 1.jpg)
+![](/images/Tutorials/Leopard Print/photo 1.JPG)
 
 Step 4: Splotch it! Now let’s add the beginnings of the leopard spots. You can use a larger dotting tool for this if you like, but I was able to just use the polish brush. Instead of perfect circles, the spot color can be painted on in more “splotchy” shapes – leopard spots aren’t symmetrical, so your polish shouldn’t be either.
 
-![](/images/Tutorials/Leopard Print/photo 2.jpg)
+![](/images/Tutorials/Leopard Print/photo 2.JPG)
 
 Step 5: Outline it! Now take your outline color and drip some of it onto your paper/plastic. Then, using the small dotting tool/toothpick, begin to outline your spots. I recommend doing two small lines on opposite sides that follow the border of the main splotch. For some nails I also threw in tiny dots of the outline color in the blank spaces.
 
-![](/images/Tutorials/Leopard Print/photo 3.jpg)
+![](/images/Tutorials/Leopard Print/photo 3.JPG)
 
 Step 6: Finish it! Once the polish had dried (to prevent any streaking), paint on your clear base coat to seal your nail art. Clean up the edges and voila! You have some jungle cat fierceness gracing your fingers/toes.
 
-![](/images/Tutorials/Leopard Print/photo 2-1.jpg)
+![](/images/Tutorials/Leopard Print/photo 2-1.JPG)
 
 I could not BELIEVE how simple leopard print is! I actually found it MUCH easier than tiger stripes, and I just love how much this design pops (granted, the hot pink helps with that *laughs*)
 
-![](/images/Tutorials/Leopard Print/photo 3-1.jpg)
+![](/images/Tutorials/Leopard Print/photo 3-1.JPG)
 
 I mean seriously, if you’re looking for a manicure to do next give these a try! I was watching Elementary with my hubby and doing my nails, and the entire manicure took me about the length of an episode (time was added on because I had to take off my flower details nails from last week). It’s just so simple!
 
-![](/images/Tutorials/Leopard Print/photo 1-1.jpg)
+![](/images/Tutorials/Leopard Print/photo 1-1.JPG)
 
 Alright everyone, that’s it for me this week. I hope you all have a lovely week! I’ll see you next time <3
 
-![](/images/Tutorials/Leopard Print/photo 5.jpg)
+![](/images/Tutorials/Leopard Print/photo 5.JPG)
 
 **Nail Polishes Used:**
 

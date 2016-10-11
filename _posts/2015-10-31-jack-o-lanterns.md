@@ -11,7 +11,7 @@ To wrap up the month of Halloween, I have some nails that no October would be co
 
 **Jack O' Lanterns!**
 
-![](/images/Tutorials/Jack O Lanterns/Preview.jpg)
+![](/images/Tutorials/Jack O Lanterns/Preview.JPG)
 
 Now let's get started :)
 
@@ -23,7 +23,7 @@ Step 1: Supplies! For these nails you will need:
 
 Clean, buff, and polish your nails in the style you prefer, then paint on your clear base coat.
 
-![](/images/Tutorials/Jack O Lanterns/step_1.JPG)
+![](/images/Tutorials/Jack O Lanterns/step_1.jpg)
 
 Step 2: Orange it! Take your orange polish and paint on 2-3 coats to get a nice solid base color.
 

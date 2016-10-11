@@ -13,43 +13,43 @@ Wow, I haven’t done a “What I’ve Been Up To” post in a while, huh? But e
 
 For the first lovely lady, she found a nail art photo on Pinterest and asked me to replicate the results (but unfortunately I’ve lost the link to the photos! Please, if these look familiar to anyone let me know so I can give credit where credit is due.)
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 2-1.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 2-1.JPG)
 
 It’s a bit difficult to tell from the photo, but there are actually four colors here: a deep burgundy base, and jagged sections layered in blue, white, and black.
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 3-2.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 3-2.JPG)
 
 These were a lot of fun to do! I had never really done this scribbled/jagged line technique, and both myself and Miss Katelyn really enjoyed the results :)
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 3-1.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 3-1.JPG)
 
 **Second: Teal, Silver and Tiger Stripes for Kortney**
 
 On to the next! Kortney saw the tiger nails that I did for their [school’s 2013 prom](http://nailsfornickels.com/bonus-post-prom-nails/) and loved them, so she requested a variation on them.
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 1-2.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 1-2.JPG)
 
 As you can see, I did teal with silver tiger stripes on the index fingers, silver on the ring fingers, and teal on the remaining fingers.
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 2-2.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 2-2.JPG)
 
 I loved this combo, and she was very happy with the results! Yay!
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 5.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 5.JPG)
 
 **Third: Ombre for Emma**
 
 And last but not least, we have little Emma’s nails! She really liked the ombre style and turquoise polishes, so that’s what we did. (Unfortunately, the turquoises selected were very close in shade, so it’s a bit difficult to tell that there was a gradient at all!)
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 4-2.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 4-2.JPG)
 
 But even though the two polishes were a bit difficult to distinguish, I think the end result was still very pretty and Emma agreed. :)
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 1.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 1.JPG)
 
 Well that’s all from me, my lovelies! I hope you’ve enjoyed this post, it’s been waiting to be published for a while now *laughs*
 
-![](/images/What I've Been Up To/What I've Been Up To 3/photo 2.jpg)
+![](/images/What I've Been Up To/What I've Been Up To 3/photo 2.JPG)
 
 Have a great week, my lovelies! I’ll see you next time <3
 

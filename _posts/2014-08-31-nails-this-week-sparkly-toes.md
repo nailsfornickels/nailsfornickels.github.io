@@ -13,23 +13,23 @@ Anyhoo, I’m mixing it up a bit this week and showing you a pedicure I did a wh
 
 **Nails This Week: Sparkly Toes**
 
-![](/images/Nails This Week/Sparkly Toes/photo 1.jpg)
+![](/images/Nails This Week/Sparkly Toes/photo 1.JPG)
 
 For this pedicure, I did a base color in a cobalt blue. For the big toe I freehanded a silver arch (maybe I should have used tape haha), and then I glued crystals along the line of the arch. I also glued four small blue crystals in a diamond shape on the center of the big toe, and a single silver crystal on the center of each of the other nails.
 
-![](/images/Nails This Week/Sparkly Toes/photo 3.jpg)
+![](/images/Nails This Week/Sparkly Toes/photo 3.JPG)
 
 Close up shot!
 
 As you can see, I was rushing the pedicure so it’s not as neat as most of my other nail art. But all this means is that I just have to keep practicing! As Jake the dog from Adventure Time says, “Sucking at something is the first step to being sort of good at something.” ;)
 
-![](/images/Nails This Week/Sparkly Toes/photo 4.jpg)
+![](/images/Nails This Week/Sparkly Toes/photo 4.JPG)
 
 (Side note: I also need to figure out how the heck to take pictures of pedicures! Lol)
 
 Well that’s all from me, my lovelies! Have a great week this week! I’ll see you next time <3
 
-![](/images/Nails This Week/Sparkly Toes/photo 2.jpg)
+![](/images/Nails This Week/Sparkly Toes/photo 2.JPG)
 
 **Nail Polishes Used:**
 

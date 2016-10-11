@@ -17,7 +17,7 @@ So let’s get started, my lovelies!
 
 **Tutorial: Under Color**
 
-![](/images/Tutorials/Under Color/photo 4-1.jpg)
+![](/images/Tutorials/Under Color/photo 4-1.JPG)
 
 Step 1: Supplies!
 
@@ -30,11 +30,11 @@ This manicure couldn’t be easier! All you need is:
 
 Step 2: Prep it! Clean, shape, and buff your nails in the style you prefer, then apply your clear base coat.
 
-![](/images/Tutorials/Under Color/photo 1.jpg)
+![](/images/Tutorials/Under Color/photo 1.JPG)
 
 Step 3: Tape it! Take a piece of tape and use it to sort of pull the pad of your finger tips down.
 
-![](/images/Tutorials/Under Color/photo 2.jpg)
+![](/images/Tutorials/Under Color/photo 2.JPG)
 
 This allows you to get more of the nail painted while simultaneously preventing the finger pad from messing up the polish.
 
@@ -44,21 +44,21 @@ Got it? Good. ;)
 
 Take your under color and paint the exposed nail. Try to keep the coats of polish thin so that you don’t have any gloopiness at the crease of finger pad and nail.
 
-![](/images/Tutorials/Under Color/photo 3.jpg)
+![](/images/Tutorials/Under Color/photo 3.JPG)
 
 Step 5: Paint it (again)! Now take your top color and paint your nails as you would normally, 2-3 coats to get a solid color.
 
-![](/images/Tutorials/Under Color/photo 4.jpg)
+![](/images/Tutorials/Under Color/photo 4.JPG)
 
 Step 6: Finish it! Finally, seal your manicure with a clear top coat, remove the pieces of tape, and voila! A regular-looking manicure with a fun surprise of color underneath!
 
-![](/images/Tutorials/Under Color/photo 1-1.jpg)
+![](/images/Tutorials/Under Color/photo 1-1.JPG)
 
 I hope you have a wonderful week, my lovelies! I’ll see you next time <3
 
-![](/images/Tutorials/Under Color/photo 3-1.jpg)
+![](/images/Tutorials/Under Color/photo 3-1.JPG)
 
-![](/images/Tutorials/Under Color/photo 2-1.jpg)
+![](/images/Tutorials/Under Color/photo 2-1.JPG)
 
 **Nail Polishes Used:**
 

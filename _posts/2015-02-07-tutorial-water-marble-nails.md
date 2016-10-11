@@ -23,7 +23,7 @@ Step 1: Supplies! For this manicure you will need:
 - Scotch tape (to wrap around your nails to ease clean up
 - Toothpicks
 
-![](/images/Tutorials/Water Marble/IMG_0526.jpg)
+![](/images/Tutorials/Water Marble/IMG_0526.JPG)
 
 (I switched to silver after taking this picture, lol)
 
@@ -41,29 +41,29 @@ Step 4: Drip it! Now take your water and begin dripping your polish into it. Dip
 
 Once one color has spread out, drip another color in the center of the first. Layer in this fashion with all of your colors.
 
-![](/images/Tutorials/Water Marble/IMG_0531.jpg)
+![](/images/Tutorials/Water Marble/IMG_0531.JPG)
 
 Step 5: Drag it! Now take your toothpick and, hovering it JUST at the surface of the polish, drag towards the center of your polish dots. Do this around the circumference of the polish to get some cool swirls.
 
-![](/images/Tutorials/Water Marble/IMG_0532.jpg)
+![](/images/Tutorials/Water Marble/IMG_0532.JPG)
 
 Step 6: Tape it! Take your scotch tape and wrap it around the base and sides of your nail. This will make clean up much easier after :)
 
 Step 7: Dip it! Now take your nail and dip it, nail first, into the surface of the polish and down into the water.
 
-![](/images/Tutorials/Water Marble/IMG_0533.jpg)
+![](/images/Tutorials/Water Marble/IMG_0533.JPG)
 
 Step 8: Swirl it! Now take another toothpick and drag it around your finger, gathering up the excess polish. Place this to the side, wipe off the toothpick or throw it away.
 
-![](/images/Tutorials/Water Marble/IMG_0534.jpg)
+![](/images/Tutorials/Water Marble/IMG_0534.JPG)
 
 Step 9: Lift it! Once the polish is cleared away, gently pull your finger from the water.
 
-![](/images/Tutorials/Water Marble/IMG_0535.jpg)
+![](/images/Tutorials/Water Marble/IMG_0535.JPG)
 
 Peel away your tape to reveal the lovely swirls!
 
-![](/images/Tutorials/Water Marble/IMG_0536.jpg)
+![](/images/Tutorials/Water Marble/IMG_0536.JPG)
 
 Step 10: Finish it! Once the water has dried, seal your nail with the clear top coat. Repeat this process on every nail you want marbled, clean up the edges and voila! Water marble nails!
 
