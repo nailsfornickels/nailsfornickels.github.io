@@ -18,7 +18,7 @@ Step 1: Supplies! For this manicure, you will need:
 - Clear base coat
 - Base nail polish color (I used a light, shimmery pink for mine)
 - Green nail polish
-- Green flocking powder (see my Velvet Nails tutorial here for more information)
+- Green flocking powder (see my Velvet Nails tutorial [here](/tutorial-velvet-nails/) for more information)
 - Scotch tape
 - Nail glue OR clear nail polish
 - Faux jewels (for the ornaments)

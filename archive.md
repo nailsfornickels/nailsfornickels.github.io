@@ -15,6 +15,7 @@ permalink: /archive/
 - [Cherry Blossoms](/tutorial-cherry-blossoms/)
 - [Cherry Blossoms 2 (with bonus coordinated toes)](/tutorial-cherry-blossoms-2-with-bonus-coordinated-toes/)
 - [Christmas Trees](/christmas-month-2013-christmas-trees/)
+- [Clouds](/tutorial-clouds/)
 - [Colorful Disco](/tutorial-colorful-disco/)
 - [Cupcakes](/tutorial-cupcakes/)
 - [Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)

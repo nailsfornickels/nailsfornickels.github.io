@@ -13,7 +13,7 @@ So nothing fancy going on this week, but I’ve done another type of galaxy nail
 
 ![](/images/Nails This Week/Sunset Galaxy Nails/photo 3.JPG)
 
-I love doing galaxy nails, you can get such pretty effects so easily! To learn how to do your own, check out my tutorial here.
+I love doing galaxy nails, you can get such pretty effects so easily! To learn how to do your own, check out my tutorial [here](/tutorial-starry-starry-night/).
 
 ![](/images/Nails This Week/Sunset Galaxy Nails/photo 2.JPG)
 

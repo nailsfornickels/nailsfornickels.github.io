@@ -39,7 +39,7 @@ Take your two ombre colors (for me, white and silver), and place two spots of th
 
 ![](/images/Tutorials/Gingerbread Men/photo 3.JPG)
 
-(For more info on ombre-ing your nails, check out my Ombre Fall Colors tutorial here)
+(For more info on ombre-ing your nails, check out my Ombre Fall Colors tutorial [here](/tutorial-ombre-fall-colors/))
 
 Step 5: Dot it! Now we’re done with the background and moving on to the gingerbread men themselves. For this first step, drip some of your brown polish onto your piece of paper/plastic. Then, using your large dotting tool, place large brown dots near the base of each of your nails.
 

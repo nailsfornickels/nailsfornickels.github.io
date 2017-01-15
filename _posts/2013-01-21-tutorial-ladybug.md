@@ -21,7 +21,7 @@ Step 2: Paint it! After buffing and cleaning your nails, paint the clear base co
 
 ![](/images/Tutorials/Ladybug Tutorial/photo 2.JPG)
 
-Step 3: Tip it! Take the black polish and paint the tips of each nail. (For an easy way to do French tips, click here )
+Step 3: Tip it! Take the black polish and paint the tips of each nail. (For an easy way to do French tips, click [here](/tutorial-rubber-band-french-tips/))
 
 ![](/images/Tutorials/Ladybug Tutorial/photo 3.JPG)
 

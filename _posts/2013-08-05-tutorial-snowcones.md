@@ -32,7 +32,7 @@ Step 3: Tape it! Once your base coat has dried, grab your tape. Take two pieces 
 
 ![](/images/Tutorials/Snowcone Nails/photo 2.JPG)
 
-(Check out my “Chevron Nails” tutorial here to see an easy method for making the tape “V”)
+(Check out my “Chevron Nails” tutorial [here](/tutorial-chevron-nails/) to see an easy method for making the tape “V”)
 
 Step 4: Paint it! Once your tape is in place, take your your white polish and paint inside the “V” of the tape.
 
@@ -56,7 +56,7 @@ Have a wonderful week, my lovelies! See you next time <3
 
 ![](/images/Tutorials/Snowcone Nails/photo 2-1.JPG)
 
-To see the other manicures I’ve done with glitter, check out my “Glitter Tips” tutorial [here](http://nailsfornickels.com/tutorial-glitter-tips/) and my “Glitter Nails” tutorial [here](http://nailsfornickels.com/tutorial-glitter-nails/)!
+To see the other manicures I’ve done with glitter, check out my “Glitter Tips” tutorial [here](/tutorial-glitter-tips/) and my “Glitter Nails” tutorial [here](/tutorial-glitter-nails/)!
 
 **Nail polish used:**
 

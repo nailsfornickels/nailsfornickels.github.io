@@ -18,7 +18,7 @@ But I like how it turned out! The camera wasn’t able to capture how truly PURP
 
 (Ack! Ignore the chip!)
 
-So as you can see, all this manicure required was a few coats of purple polish, three strips of gold striping tape on each nail, and sealed with a top coat. If you don’t have any striping tape of your own, you can buy some here. (Look at all those pretty colors!)
+So as you can see, all this manicure required was a few coats of purple polish, three strips of gold striping tape on each nail, and sealed with a top coat. If you don’t have any striping tape of your own, you can buy some [here](https://www.amazon.com/s/ref=nb_sb_noss?url=search-alias%3Daps&field-keywords=striping+tape). (Look at all those pretty colors!)
 
 ![](/images/Nails This Week/Royalty - Purple and Gold/photo 2.JPG)
 

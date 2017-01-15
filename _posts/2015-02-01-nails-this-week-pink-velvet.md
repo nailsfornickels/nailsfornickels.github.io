@@ -9,11 +9,11 @@ Happy Sunday, my lovelies! And happy February! Is everyone having a nice start t
 
 ![](/images/Nails This Week/Pink Velvet/photo 2.JPG)
 
-Haven’t seen velvet nails in a while, huh? I absolutely love the set of flocking powder I have (seen here, though I bought it at Michael’s) – those subtle sparkles are so cute! And I love the way this pink pops – I don’t normally like pink polishes on myself, but I did really like the combination of pink polish and velvet.
+Haven’t seen velvet nails in a while, huh? I absolutely love the set of flocking powder I have (seen [here](https://www.amazon.com/Martha-Stewart-Crafts-Glitter-Flocking/dp/B005573D3Y), though I bought it at Michael’s) – those subtle sparkles are so cute! And I love the way this pink pops – I don’t normally like pink polishes on myself, but I did really like the combination of pink polish and velvet.
 
 ![](/images/Nails This Week/Pink Velvet/photo 1.JPG)
 
-To learn how to make your own fuzzy nails at home, check out my Velvet Nails Tutorial.
+To learn how to make your own fuzzy nails at home, check out my Velvet Nails [Tutorial](/tutorial-velvet-nails/).
 
 ![](/images/Nails This Week/Pink Velvet/photo 3.JPG)
 

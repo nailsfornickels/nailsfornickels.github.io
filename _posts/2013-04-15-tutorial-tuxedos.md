@@ -44,7 +44,7 @@ Step 5: Paint it! Take your white polish and paint the nail. After painting, rem
 
 ![](/images/Tutorials/Tuxedo Nails/photo 4.JPG)
 
-Step 6: Buttons! Drip some of the color polish onto your piece of paper. Dip your dotting tool into the polish, and make two buttons in the center of each nail. (To see how to make your own dotting tool, click here.)
+Step 6: Buttons! Drip some of the color polish onto your piece of paper. Dip your dotting tool into the polish, and make two buttons in the center of each nail. (To see how to make your own dotting tool, click [here](/tutorial-polka-dots/).)
 
 ![](/images/Tutorials/Tuxedo Nails/photo 1-1.JPG)
 

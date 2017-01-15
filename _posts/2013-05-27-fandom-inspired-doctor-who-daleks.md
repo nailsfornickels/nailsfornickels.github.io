@@ -25,7 +25,7 @@ Step 1: Supplies! For this manicure, you will need:
 - Nail polish in gold, black, white, and blue
 - A piece of paper/plastic for dripping polish on
 - A thin paintbrush
-- Three different sized dotting tools (I used my regular dotting tool seen here, and two pens with different sized clicky ends [which is totally a term, don’t lie to me])
+- Three different sized dotting tools (I used my regular dotting tool seen [here](/tutorial-polka-dots/), and two pens with different sized clicky ends [which is totally a term, don’t lie to me])
 - Small adhesive pearls (which you can find at pretty much any scrapbooking section. I found mine at Michaels :) )
 
 ![](/images/Fandom Inspired/Doctor Who Daleks/photo 3.JPG)

@@ -19,7 +19,7 @@ It was so tough getting the pictures right for this manicure – the colors were
 
 ![](/images/Nails This Week/Chevron/photo 3.JPG)
 
-To learn how to do Chevron-style nails at home, check out my tutorial here! Have a wonderful week, my lovelies!
+To learn how to do Chevron-style nails at home, check out my tutorial [here](/tutorial-chevron-nails/)! Have a wonderful week, my lovelies!
 
 **Nail Polishes Used:**
 

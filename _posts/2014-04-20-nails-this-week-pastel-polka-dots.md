@@ -15,7 +15,7 @@ This week’s manicure is the DEFINITION of simple and cute. I just did each of 
 
 ![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 3.JPG)
 
-For dots this size, you have three options: you can simply use the built-in bottle brush (like I did for this manicure today), you can use dotting tools (which you can purchase online or in nail art supply shops), or you can make your own at home (which I demonstrated in this tutorial here).
+For dots this size, you have three options: you can simply use the built-in bottle brush (like I did for this manicure today), you can use dotting tools (which you can purchase online or in nail art supply shops), or you can make your own at home (which I demonstrated in this tutorial [here](/tutorial-polka-dots/)).
 
 ![](/images/Nails This Week/Easter 2014 - Pastel n Polka Dots/photo 5.JPG)
 

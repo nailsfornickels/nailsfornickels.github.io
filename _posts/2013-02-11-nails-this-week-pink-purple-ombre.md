@@ -13,7 +13,7 @@ I’m keeping things simple this week, and doing a “Nails This Week” post in
 
 ![](/images/Nails This Week/Ombres/photo 2.JPG)
 
-This week, I did an ombre manicure with some AWESOME purple & pink polishes I got last week :) To see how you can do this at home, check out my ombre tutorial here.
+This week, I did an ombre manicure with some AWESOME purple & pink polishes I got last week :) To see how you can do this at home, check out my ombre tutorial [here](/tutorial-ombre-fall-colors/).
 
 Have a great week everyone! See you next time! <3
 

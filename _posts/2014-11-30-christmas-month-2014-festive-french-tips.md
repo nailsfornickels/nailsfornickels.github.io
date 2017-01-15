@@ -15,7 +15,7 @@ Unfortunately the lighting in my apartment is REALLY crappy at night, so the qua
 
 ![](/images/Nails This Week/Festive French Tips/FullSizeRender-4.jpg)
 
-I did the glitter tips method for this manicure. First I did a white base coat, and then once that dried I used hole reinforcement stickers to paint the tips of my nails. While the polish was still wet I sprinkled glitter on them and shook off the excess. Finally, I sealed the mani with clear top coat and cleaned up the edges. Check out of of my first tutorials here to see how you can do your own glitter nails.
+I did the glitter tips method for this manicure. First I did a white base coat, and then once that dried I used hole reinforcement stickers to paint the tips of my nails. While the polish was still wet I sprinkled glitter on them and shook off the excess. Finally, I sealed the mani with clear top coat and cleaned up the edges. Check out of of my first tutorials [here](/tutorial-glitter-tips/) to see how you can do your own glitter nails.
 
 ![](/images/Nails This Week/Festive French Tips/FullSizeRender-3.jpg)
 

@@ -11,7 +11,7 @@ Just a quick post for you guys today: for St. Patrick’s Day yesterday I did Gr
 
 ![](/images/Nails This Week/Holiday Themed/green velvet.JPG)
 
-To learn how you can do this awesome, fuzzy manicure at home, check out my Velvet manicure tutorial here.
+To learn how you can do this awesome, fuzzy manicure at home, check out my Velvet manicure tutorial [here](/tutorial-velvet-nails/).
 
 Happy Monday everybody! See you next week! <3
 

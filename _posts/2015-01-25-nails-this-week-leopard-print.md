@@ -13,7 +13,7 @@ This week I kept things funky – leopard print! I actually had two friends not 
 
 ![](/images/Nails This Week/Leopard/FullSizeRender-2.jpg)
 
-To learn how to do your own leopard print nails, check out my tutorial here. (The best part is, you don’t have to stick to regular colors! You can do any color leopard print you like :D)
+To learn how to do your own leopard print nails, check out my tutorial [here](/tutorial-leopard-print/). (The best part is, you don’t have to stick to regular colors! You can do any color leopard print you like :D)
 
 ![](/images/Nails This Week/Leopard/FullSizeRender-3.jpg)
 

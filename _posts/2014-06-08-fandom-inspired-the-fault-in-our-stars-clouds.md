@@ -14,7 +14,7 @@ I loved the book (John Green is an AMAZING author, this is a known fact) and, to
 
 ![](/images/Fandom Inspired/The Fault In Our Stars Clouds/photo 1.JPG)
 
-My nails for the movie were pretty simple – just the black and white clouds from the cover of the book! If you want to know how to do cloud nails at home, just check out my easy-peasy tutorial here!
+My nails for the movie were pretty simple – just the black and white clouds from the cover of the book! If you want to know how to do cloud nails at home, just check out my easy-peasy tutorial [here](/tutorial-clouds/)!
 
 ![](/images/Fandom Inspired/The Fault In Our Stars Clouds/photo 2.JPG)
 

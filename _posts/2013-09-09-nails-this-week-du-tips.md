@@ -15,7 +15,7 @@ Last week my program had their new student orientation, so to celebrate the occa
 
 ![](/images/Nails This Week/DU Tips/photo 3.JPG)
 
-To create this look, I did the red tips using the rubber band method (which you can check out here) and and added two lines of gold striping tape directly underneath.
+To create this look, I did the red tips using the rubber band method (which you can check out [here](/tutorial-rubber-band-french-tips/)) and and added two lines of gold striping tape directly underneath.
 
 ![](/images/Nails This Week/DU Tips/photo 2.JPG)
 

@@ -13,7 +13,7 @@ Today’s nails are pretty simple: a smokey ombre! I’ve been missing ombre nai
 
 ![](/images/Nails This Week/Ombres/Smokey Ombre/FullSizeRender-2.jpg)
 
-If you haven’t done ombre or gradient nails before, check out my tutorial here.
+If you haven’t done ombre or gradient nails before, check out my tutorial [here](/tutorial-ombre-fall-colors/).
 
 ![](/images/Nails This Week/Ombres/Smokey Ombre/FullSizeRender-3.jpg)
 

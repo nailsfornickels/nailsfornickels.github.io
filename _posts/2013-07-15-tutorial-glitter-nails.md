@@ -7,7 +7,7 @@ permalink: /tutorial-glitter-nails/
 
 Hello everyone! I’m happy to report that my puppy is back in tip-top shape :) She’s a little ball of pure energy again haha. Did you all have a nice weekend? We’ve been getting quite a bit of rain the past few days here, it’s been so nice! Dry Colorado has definitely needed it. :)
 
-In the past I did a tutorial showing you how to do glitter tip nails (found here), and today’s tutorial is pretty similar, just doing the whole nail instead of a portion. I did French Tip-esque nails for the tutorial, but if you want to do solid color for your glitter nails just paint your entire nail with the base coat instead of different sections at a time. Now let’s get started!
+In the past I did a tutorial showing you how to do glitter tip nails (found [here](/tutorial-glitter-tips/)), and today’s tutorial is pretty similar, just doing the whole nail instead of a portion. I did French Tip-esque nails for the tutorial, but if you want to do solid color for your glitter nails just paint your entire nail with the base coat instead of different sections at a time. Now let’s get started!
 
 ![](/images/Tutorials/Glitter Nails/photo 4-1.JPG)
 

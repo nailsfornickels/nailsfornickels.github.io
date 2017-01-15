@@ -13,7 +13,7 @@ Since we’ve had some relatively complicated nail tutorials the last few times,
 
 ![](/images/Nails This Week/silverlining.JPG)
 
-And remember, if you want a quick and easy way to do French tips, check out the tutorial I did here.
+And remember, if you want a quick and easy way to do French tips, check out the tutorial I did [here](/tutorial-rubber-band-french-tips/).
 
 Enjoy everybody! See you next time! <3
 

@@ -13,7 +13,7 @@ This week I FINALLY have another tutorial for you:
 
 **Caviar Nails!**
 
-Now there are a couple of ways to do this 3-D style manicure: you can always purchase a kit made specifically for caviar nails like this one here, and it will have everything you need. But you know me, I like the DIY, cheaper options. ;)
+Now there are a couple of ways to do this 3-D style manicure: you can always purchase a kit made specifically for caviar nails like this one [here](https://www.amazon.com/Ciat%C3%A9-Caviar-ManicureTM-Rainbow/dp/B007SYYZG6/ref=pd_bxgy_194_img_2?_encoding=UTF8&psc=1&refRID=7SQJ43MNHXTS8YY0FS3X), and it will have everything you need. But you know me, I like the DIY, cheaper options. ;)
 
 So I (of course) went to Michael’s, and found a GREAT set of microbeads in their scrapbooking section. If you would prefer to put together the items for a caviar manicure yourself, look for microbeads! There are great options both online as well as in craft stores. Now on to the tutorial!
 
