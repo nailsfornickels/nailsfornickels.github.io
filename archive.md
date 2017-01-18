@@ -127,6 +127,7 @@ permalink: /archive/
 - [“The Hunger Games – Mockingjay”: Capitol Nails](/fandom-inspired-the-hunger-games-mockingjay-capitol-nails/)
 - [“A Song of Ice and Fire” / “Game of Thrones”: House Colors](/fandom-inspired-a-song-of-ice-and-fire-house-colors/)
 - [“A Song of Ice and Fire” / “Game of Thrones”: Bloody Crowns](/fandom-inspired-game-of-thrones-a-song-of-ice-and-fire-bloody-crowns/)
+- ["Yuri on Ice": Pair Skate](/fandom-inspired-yuri-on-ice-pair-skate/)
 
 
 **Holiday-Themed:**
