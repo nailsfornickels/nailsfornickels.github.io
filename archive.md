@@ -92,6 +92,7 @@ permalink: /archive/
 - [Leopard Print](/nails-this-week-leopard-print/)
 - [Lilac & Jewels](/nails-this-week-lilac-jewels/)
 - [Lilac & White Dots](/nails-this-week-lilac-white-dots/)
+- [Nighttime Sparkle](/nails-this-week-nighttime-sparkle/)
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
 - [Pantone Colors of the Year 2016 Glitz](/nails-this-week-pantone-colors-of-the-year-2016-glitz/)
 - [Pink Velvet](/nails-this-week-pink-velvet/)
