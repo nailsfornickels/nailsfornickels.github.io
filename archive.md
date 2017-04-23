@@ -20,6 +20,7 @@ permalink: /archive/
 - [Cupcakes](/tutorial-cupcakes/)
 - [Cutesy Vampires](/halloween-month-2015-tutorial-cutesy-vampires/)
 - [Daisies](/tutorial-daisies/)
+- [Dandelions](/tutorial-dandelions/)
 - [Donuts & Chocolate Sprinkles](/tutorial-donuts-chocolate-sprinkles/)
 - [Feather](/tutorial-feather-nails/)
 - [Flower Accent](/tutorial-flower-accent/)
@@ -152,6 +153,10 @@ permalink: /archive/
 *Easter*
 
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
+
+*Earth Day*
+
+- [Dandelions](/tutorial-dandelions/)
 
 *Halloween*
 

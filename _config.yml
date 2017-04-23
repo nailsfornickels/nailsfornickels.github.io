@@ -15,7 +15,7 @@ links:
     url:          mailto:nailsfornickels@gmail.com
     external:     true
   - name:         Latest Post
-    url:          /nails-this-week-nighttime-sparkle/
+    url:          /tutorial-dandelions/
 highlighter:      rouge
 permalink:        pretty
 markdown:         kramdown

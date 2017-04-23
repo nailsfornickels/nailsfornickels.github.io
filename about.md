@@ -19,7 +19,8 @@ Hey nail-lovers, the name is Lindsey! I’m a twenty-something lady living in th
 
 **Contact:**
 
-[Tumblr](http://nailsfornickels.tumblr.com) * 
 [Facebook](https://www.facebook.com/nailsfornickels) * 
+[Instagram](https://www.instagram.com/thedragonbabe/) * 
+[Tumblr](http://nailsfornickels.tumblr.com) * 
 [Twitter](https://twitter.com/TheDragonBabe)
 
