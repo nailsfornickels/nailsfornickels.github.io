@@ -1,5 +1,5 @@
 title:            Nails For Nickels
-description:      A jekyll theme. Because I scribble.
+description:      Nail art that's easy on the eyes and the wallet!
 url:              # Site url.
 signoff:          # Your name.
 disqus_shortname: # disqus comment thread for post header options. ( leave blank if unwanted. )
@@ -15,7 +15,7 @@ links:
     url:          mailto:nailsfornickels@gmail.com
     external:     true
   - name:         Latest Post
-    url:          /tutorial-dandelions/
+    url:          /nails-this-week-matte-emerald-elegance/
 highlighter:      rouge
 permalink:        pretty
 markdown:         kramdown
