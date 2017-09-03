@@ -91,6 +91,7 @@ permalink: /archive/
 - [Gray with Pink Stripes](/nails-this-week-gray-with-pink-stripes/)
 - [Green Velvet](/nails-this-week-green-velvet/)
 - [Leopard Print](/nails-this-week-leopard-print/)
+- [Lilac & Gold](/nails-this-week-lilac-and-gold/)
 - [Lilac & Jewels](/nails-this-week-lilac-jewels/)
 - [Lilac & White Dots](/nails-this-week-lilac-white-dots/)
 - [Matte Emerald Elegance](/nails-this-week-matte-emerald-elegance/)
