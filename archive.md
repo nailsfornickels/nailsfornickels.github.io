@@ -121,6 +121,7 @@ permalink: /archive/
 - [“Dexter”: Blood Spatter](/fandom-inspired-dexter-blood-spatter/)
 - [“Doctor Who”: Daleks](/fandom-inspired-doctor-who-daleks/)
 - [“Doctor Who”: TARDIS](/fandom-inspired-doctor-who-tardis/)
+- ["Legend of Zelda": Triforce](/fandom-inspired-legend-of-zelda-triforce/)
 - [“Mario”: Mushrooms](/fandom-inspired-mario-mushroom-pedicure/)
 - [“Nightmare Before Christmas”: Jack Skellington](/halloween-month-2013-tutorial-fandom-inspired-nightmare-before-christmas-jack-skellington/)
 - [“Pokemon”: Pokeballs](/fandom-inspired-pokemon-pokeballs/)
