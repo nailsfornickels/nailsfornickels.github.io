@@ -178,6 +178,10 @@ permalink: /archive/
 - [Halloween Month 2015: Jack O' Lanterns](/halloween-month-2015-tutorial-jack-o-lanterns)
 - [Halloween Month 2016: Glowing Skulls](/halloween-month-2016-tutorial-glowing-skulls/)
 
+*Thanksgiving*
+
+- [Thanksgiving Glitter](/nails-this-week-thanksgiving-glitter/)
+
 *Christmas*
 
 - [Alternating Red & White Tips](/nails-this-week-red-and-white-tips/)
