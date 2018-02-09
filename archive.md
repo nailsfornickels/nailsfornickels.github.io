@@ -108,6 +108,7 @@ permalink: /archive/
 - [Silver Lining](/nails-this-week-silver-lining/)
 - [Smokey Ombre](/nails-this-week-smokey-ombre/)
 - [Sparkle Gradient & Tips](/nails-this-week-sparkle-gradient-tips/)
+- [Sparkle & Heart Tips](/nails-this-week-sparkle-heart-tips/)
 - [Sparkly Toes](/nails-this-week-sparkly-toes/)
 - [Starry French Tips](/nails-this-week-starry-french-tips/)
 - [Sunset Galaxy Nails](/nails-this-week-sunset-galaxy-nails/)
@@ -147,6 +148,7 @@ permalink: /archive/
 - [Cherry Red with Black Pearls](/nails-this-week-cherry-red-with-black-pearls/)
 - [French Tips with Hearts](/tutorial-valentines-day-hearts-french-tips/)
 - [Ombre & Hearts](/nails-this-week-valentines-day-2015-ombre-hearts/)
+- [Sparkle & Heart Tips](/nails-this-week-sparkle-heart-tips/)
 - [Valentine’s Fingers & Toes](/bonus-post-valentines-day-fingers-toes/)
 
 *St. Patrick’s Day*
