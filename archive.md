@@ -110,6 +110,7 @@ permalink: /archive/
 - [Sparkle Gradient & Tips](/nails-this-week-sparkle-gradient-tips/)
 - [Sparkle & Heart Tips](/nails-this-week-sparkle-heart-tips/)
 - [Sparkly Toes](/nails-this-week-sparkly-toes/)
+- [Spring Floral with Dried Flowers](/nails-this-week-spring-florals-dried-flowers/)
 - [Starry French Tips](/nails-this-week-starry-french-tips/)
 - [Sunset Galaxy Nails](/nails-this-week-sunset-galaxy-nails/)
 - [White Feathers](/nails-this-week-white-feathers/)
@@ -201,10 +202,10 @@ permalink: /archive/
 
 **What I’ve Been Up To!** *(Single posts that contain multiple pictures of the various nails I do for friends and family)*
 
-- [Bonus Post: Prom Nails!](bonus-post-prom-nails/)
-- [Post 1](what-ive-been-up-to-post-1/)
-- [Post 2](what-ive-been-up-to-post-2/)
-- [Post 3](what-ive-been-up-to-post-3/)
+- [Bonus Post: Prom Nails!](/bonus-post-prom-nails/)
+- [Post 1](/what-ive-been-up-to-post-1/)
+- [Post 2](/what-ive-been-up-to-post-2/)
+- [Post 3](/what-ive-been-up-to-post-3/)
 
 **What You’ve Been Up To!** *(Single posts that contain multiple pictures of the photos I receive from the readers)*
 
