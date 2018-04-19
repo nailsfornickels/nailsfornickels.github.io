@@ -26,6 +26,7 @@ permalink: /archive/
 - [Flower Accent](/tutorial-flower-accent/)
 - [French Tips with Hearts](/tutorial-valentines-day-hearts-french-tips/)
 - [Fuzzy Tips](/tutorial-fuzzy-tips/)
+- [Gel Nails](/tutorial-gel-nails-with-pink-gellac/)
 - [Ghosts](/halloween-month-2013-tutorial-ghosts/)
 - [Gingerbread Men](/christmas-month-2013-gingerbread-men/)
 - [Glitter Nails](/tutorial-glitter-nails/)
@@ -136,6 +137,10 @@ permalink: /archive/
 - [“A Song of Ice and Fire” / “Game of Thrones”: Bloody Crowns](/fandom-inspired-game-of-thrones-a-song-of-ice-and-fire-bloody-crowns/)
 - ["Yuri on Ice": Pair Skate](/fandom-inspired-yuri-on-ice-pair-skate/)
 
+
+**Gel Nails:**
+
+- [Tutorial: Gel Nails](/tutorial-gel-nails-with-pink-gellac/)
 
 **Holiday-Themed:**
 
