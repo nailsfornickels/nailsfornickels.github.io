@@ -113,7 +113,7 @@ __Pink Gellac Starter Kit Review__
 
 So what did I think about the Pink Gellac Starter Kit? I loved it!
 
-It's funny: I had actually purchased my own gel kit a few weeks before Ashley reached out to me, so I knew what I was doing by the time I tested this kit. I think this is an awesome gel kit: it gives you everything you need, comes with detailed instructions, and the polish is awesome! The only issues I had personally were with the lamp itself, but even those were very small issuees. Here's a breakdown of my thoughts:
+It's funny: I had actually purchased my own gel kit a few weeks before Ashley reached out to me, so I knew what I was doing by the time I tested this kit. I think this is an awesome gel kit: it gives you everything you need, comes with detailed instructions, and the polish is awesome! The only issues I had personally were with the lamp itself, but even those were very small issues. Here's a breakdown of my thoughts:
 
 ![](/images/Tutorials/Gel Nails with Pink Gellac Review/final 4.jpg)
 
