@@ -95,6 +95,7 @@ permalink: /archive/
 - [Lilac & Gold](/nails-this-week-lilac-and-gold/)
 - [Lilac & Jewels](/nails-this-week-lilac-jewels/)
 - [Lilac & White Dots](/nails-this-week-lilac-white-dots/)
+- [Maroon & Stars](/nails-this-week-maroon-stars/)
 - [Matte Emerald Elegance](/nails-this-week-matte-emerald-elegance/)
 - [Nighttime Sparkle](/nails-this-week-nighttime-sparkle/)
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
