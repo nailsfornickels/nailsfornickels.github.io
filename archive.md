@@ -104,6 +104,7 @@ permalink: /archive/
 - [Pink & Lime French Tips](/nails-this-week-pink-lime-french-tips/)
 - [Pink & Purple Ombre](/nails-this-week-pink-purple-ombre/)
 - [Polka Dot French Tips](/nails-this-week-polka-dot-french-tip/)
+- [Pride Leopard](/nails-this-week-pride-leopard/)
 - [Programmer’s Delight (nails for software engineers!)](/nails-this-week-programmers-delight/)
 - [Prom Nails](/bonus-post-prom-nails/)
 - [Royalty (Purple with Gold Stripes)](/nails-this-week-royalty-purple-with-gold-stripes/)
