@@ -37,6 +37,7 @@ permalink: /archive/
 - [Kiwi Slices](/tutorial-kiwi-slices/)
 - [Lace Tips](/tutorial-lace-tips/)
 - [Ladybugs](/tutorial-ladybug/)
+- [Lemon Slices](/tutorial-lemon-slices/)
 - [Leopard Print](/tutorial-leopard-print/)
 - [Mummies](/halloween-month-2013-tutorial-mummies/)
 - [Nautical Anchors](/nails-this-week-nautical-anchors/)
