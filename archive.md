@@ -98,6 +98,7 @@ permalink: /archive/
 - [Lilac & White Dots](/nails-this-week-lilac-white-dots/)
 - [Maroon & Stars](/nails-this-week-maroon-stars/)
 - [Matte Emerald Elegance](/nails-this-week-matte-emerald-elegance/)
+- [Moonstone Glamour](/nails-this-week-moonstone-glamour/)
 - [Nighttime Sparkle](/nails-this-week-nighttime-sparkle/)
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
 - [Pantone Colors of the Year 2016 Glitz](/nails-this-week-pantone-colors-of-the-year-2016-glitz/)
