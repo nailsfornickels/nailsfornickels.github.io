@@ -118,6 +118,7 @@ permalink: /archive/
 - [Spring Floral with Dried Flowers](/nails-this-week-spring-florals-dried-flowers/)
 - [Starry French Tips](/nails-this-week-starry-french-tips/)
 - [Sunset Galaxy Nails](/nails-this-week-sunset-galaxy-nails/)
+- [Turquoise & Pink White Roses](/nails-this-week-turquoise-pink-white-roses/)
 - [White Feathers](/nails-this-week-white-feathers/)
 - [Wood Nails](/nails-this-week-wood-nails/)
 - [Wood & Studs](/nails-this-week-wood-studs/)
