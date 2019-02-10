@@ -102,6 +102,7 @@ permalink: /archive/
 - [Nighttime Sparkle](/nails-this-week-nighttime-sparkle/)
 - [Pastel & Polka Dots](/nails-this-week-pastel-polka-dots/)
 - [Pantone Colors of the Year 2016 Glitz](/nails-this-week-pantone-colors-of-the-year-2016-glitz/)
+- [Pearl Comfort](/nails-this-week-pearl-comfort/)
 - [Pink Velvet](/nails-this-week-pink-velvet/)
 - [Pink & Lime French Tips](/nails-this-week-pink-lime-french-tips/)
 - [Pink & Purple Ombre](/nails-this-week-pink-purple-ombre/)
