@@ -2,7 +2,7 @@
 layout: post
 title: Nails This Week - Golden Mirror
 date: 2019-06-30
-permalink: /nails-this-golden-mirror/
+permalink: /nails-this-week-golden-mirror/
 ---
 
 Happy Sunday, my lovelies! And more importantly:
