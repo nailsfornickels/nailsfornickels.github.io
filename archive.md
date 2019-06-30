@@ -89,7 +89,7 @@ permalink: /archive/
 - [Festive French Tips](/christmas-month-2014-festive-french-tips/)
 - [Festive Red & White](/christmas-month-2013-festive-red-white/)
 - [Galaxy Nails](/nails-this-week-galaxy-nails/)
-- [Golden Mirror](/nails-this-golden-mirror/)
+- [Golden Mirror](/nails-this-week-golden-mirror/)
 - [Gray Ombre](/nails-this-week-gray-ombre/)
 - [Gray with Pink Stripes](/nails-this-week-gray-with-pink-stripes/)
 - [Green Velvet](/nails-this-week-green-velvet/)
@@ -148,7 +148,7 @@ permalink: /archive/
 **Gel Nails:**
 
 - [Tutorial: Gel Nails](/tutorial-gel-nails-with-pink-gellac/)
-- [Nails This Week: Golden Mirror](/nails-this-golden-mirror/)
+- [Nails This Week: Golden Mirror](/nails-this-week-golden-mirror/)
 
 **Holiday-Themed:**
 
